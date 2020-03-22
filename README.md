@@ -1,0 +1,2 @@
+# buenaidea
+Me gusta investigar
